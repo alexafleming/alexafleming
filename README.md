@@ -1,2 +1,3 @@
-![header](https://github.com/alexafleming/alexafleming/assets/111538729/d4495e9a-6a4f-4fb0-bc43-243b1d86da22)
+
+![ALEXA FLEMING](https://github.com/alexafleming/alexafleming/assets/111538729/85d02d08-3811-408c-a58c-ecf3dc88b21a)
 
